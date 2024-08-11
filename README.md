@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @piyush4708
-- 👀 I'm in a role system engineer at Tata consultancy services 
+- 👀 I'm working as software developer  at Tata consultancy services 
 - 💞️ I’m looking to collaborate on open source project
 - 📫 How to reach me email:- piyushgope77@gmail.com
                      mobile No: +91 9060324511
